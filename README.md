@@ -8,7 +8,7 @@
 提取码：o3zn 
 
 
-国内镜像
+# ZeroPixel服务端
 
 链接：https://pan.baidu.com/s/14gzrGg8YfH9NdIKj2PXtMQ 
 提取码：vgcw 
