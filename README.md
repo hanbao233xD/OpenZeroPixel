@@ -2,9 +2,7 @@
 
 服务端全部来自原批club服务器Owner自愿提供 与ZeroPixel服务器无关
 
-# 张元朗
-
-神权视频
+# 张元朗神权视频
 
 https://www.bilibili.com/video/BV1TW4y1U7Pb
 
