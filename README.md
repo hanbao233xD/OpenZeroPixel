@@ -1,3 +1,4 @@
+![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/Screenshot_20220720_100931.jpg?raw=true)
 # OpenZeroPixel
 
 服务端全部来自原批club服务器Owner自愿提供 与ZeroPixel服务器无关
