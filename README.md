@@ -1,3 +1,4 @@
+# 张元朗名言
 ![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/Screenshot_20220720_100931.jpg?raw=true)
 # OpenZeroPixel
 
@@ -9,7 +10,7 @@
 提取码：vgcw 
 
 
-# 张*神权视频
+# 张元朗神权视频
 
 链接：https://pan.baidu.com/s/1VLm2UlIRp8oYiqhdj9lh-Q?pwd=o3zn 
 提取码：o3zn 
@@ -23,7 +24,6 @@ https://www.bilibili.com/video/BV1TW4y1U7Pb
 ![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/QQ图片20220718180034.jpg?raw=true)
 ![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/QQ图片20220718180040.jpg?raw=true)
 ![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/QQ图片20220718180052.png?raw=true)
-
 
 
 
