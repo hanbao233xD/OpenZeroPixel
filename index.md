@@ -1,5 +1,7 @@
-![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/retouch_2022081117490610.jpg?raw=true)
+![[]()](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/retouch_2022081117490610.jpg?raw=true)
 # 张元朗名言
+
+[查看更多！](https://ylang.gay/namebb.html)
 
 ![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/20220818_nianqiu.jpg?raw=true)
 
@@ -16,10 +18,10 @@
 
 # 张元朗神权视频
 
-链接：https://pan.baidu.com/s/1VLm2UlIRp8oYiqhdj9lh-Q?pwd=o3zn 
+链接：[https://pan.baidu.com/s/1VLm2UlIRp8oYiqhdj9lh-Q?pwd=o3zn](https://pan.baidu.com/s/1VLm2UlIRp8oYiqhdj9lh-Q?pwd=o3zn ) 
 提取码：o3zn 
 
-https://www.bilibili.com/video/BV1TW4y1U7Pb
+[https://www.bilibili.com/video/BV1TW4y1U7Pb](https://www.bilibili.com/video/BV1TW4y1U7Pb)
 
 ![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/QQ图片20220718175852.jpg?raw=true)
 ![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/QQ图片20220718175902.jpg?raw=true)
