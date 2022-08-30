@@ -3,7 +3,7 @@
 
 [查看更多！](https://ylang.gay/namebb.html)
 
-![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/?raw=true)
+![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/143c21a1367a4a62.jpg?raw=true)
 
 
 ![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/20220818_nianqiu.jpg?raw=true)
