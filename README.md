@@ -1,3 +1,4 @@
+# 由于ylang.gay过期，OpenZeroPixel将被迁移到op.littlecold.cn
 ![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/retouch_2022081117490610.jpg?raw=true)
 # 张元朗名言
 ![](https://github.com/hanbao233xD/OpenZeroPixel/blob/main/img/Screenshot_20220720_100931.jpg?raw=true)
